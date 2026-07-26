@@ -1,1 +1,1 @@
-# art-culo-cientifico
+# arti-culo-cientifico
